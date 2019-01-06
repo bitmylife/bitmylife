@@ -1,1 +1,1 @@
-# bitmylife
+I know you are looking for bit life updated for android you are this game. here is link and share your friend don't miss to give postive review. wirte here create a issue i will fix this don't worry i love you. 
