@@ -3,3 +3,8 @@ I know you are looking for bitmylife updated for android you are in this game. h
 
 Download link share your friend. write me if you found and spelling and grammer mistake or need any essential feture that your thinking really need
 https://play.google.com/store/apps/details?id=com.bit.lifesimulator.bitmylife
+
+<b>what's new?</b>
+Part time work to collect money.
+
+
